@@ -1,2 +1,4 @@
 # kaska
-zarabianie kaski
+zarabianie kaski to nie prosty temat
+
+: ^ )
